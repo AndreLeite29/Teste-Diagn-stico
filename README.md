@@ -1,1 +1,1 @@
-# Teste-Diagn-stico
+# EAD
